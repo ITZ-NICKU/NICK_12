@@ -1,0 +1,2 @@
+# NICK_12
+OWN MY WORLD 
